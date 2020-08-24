@@ -1,2 +1,2 @@
 # nuevo-repo
-no ponerla
+ven y pierdem el respeto
